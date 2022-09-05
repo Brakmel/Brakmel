@@ -1,5 +1,5 @@
 -Wena !
-my name is Bran 
+I´m Bran 
 I really like to learn
 I come in search of 2 things =)
 to learn and support in the progress of the growth of this beautiful community with my codes.
